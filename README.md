@@ -9,7 +9,7 @@
 
 3. Às vezes ficar animado
 
-Follow for more [Dr Luis Paschoali] (http://dr.luis.paschoali.com.br)
+Follow for more [Dr Luis Paschoali] (https://drluispaschoali.com.br/)
 
 
  
